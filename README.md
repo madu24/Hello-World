@@ -1,2 +1,4 @@
 # Hello-World
-Just another repository. In God I trust. 10 Jan 2017
+Its Buchi here!
+I am of the view that man is yet to make billions of new discoveries and I'm here to be part of it.
+Join me!
